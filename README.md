@@ -1,1 +1,1 @@
-PERSONAL PORTFOLIO - [click here](sumanth37z.github.io)
+PERSONAL PORTFOLIO - [click here](https://sumanth37z.github.io/)
